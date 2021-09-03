@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Adrián 
+- 👀 I’m interested in Problem Solving, Product Management, Dogs and Cooking
+- 🌱 I’m currently learning how to be a better Product Owner
+- 💞️ I’m looking to collaborate on a whitelabel website for Animal Shelters
+- 📫 How to reach me @conmdemuro in IG and Twitter.
